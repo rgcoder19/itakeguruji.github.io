@@ -1,0 +1,1 @@
+# itakeguruji.github.io
